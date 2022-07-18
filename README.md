@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Stikkles
+- 👀 I’m interested in Game devlopement
+- 🌱 I’m currently learning C++ and Jva
+- 📫 How to reach me youtube please subscribe Thanks
